@@ -1,6 +1,6 @@
 ## Hey, I'm Arseniy👋
 
-🧩Midle Technical Administrator
+🧩Middle Technical Administrator
 
 
 ## 🌐 Socials:
